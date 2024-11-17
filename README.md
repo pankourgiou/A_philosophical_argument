@@ -1,0 +1,6 @@
+# A_philosophical_argument
+In order to go to the underworld---->to the other world, first you need to Live..."so live together, die alone"-Penny and Desmont, Lost series. Today I will install Safari browser and test it...it is Sunday and you know Sunday we don't work.
+When we are ill we don't work either. If we work over hours and we don't get paid, this is a big problem, because it's human life exploitation. So if working like animals is the future of humanity this is not ok with me and many people. we couldn't go against Deutschland we couldn't be with the SS because this is not my philosophy,
+So I write a couple of words here which are not code and it's true statement yet truth is just another tool...Using the tool=truth we can create 1) A new language meaning a new culture.... 2) new way to think, new pictures and new ideas... Truth is TAGCACGATTAGCGT in Dna language so.
+If I was to explain everything it would be no fun it's ok sometimes you don't understand coding. So if needed we will create a new language or dig out a private language public....Achilles gut's the know-how but living in a society meany to combine ideas. Even machines do take a nap...a.i.=a.i.
+we work for 8h/5days however not 24/7..Doing this is not health.-
